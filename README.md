@@ -8,7 +8,7 @@ I'm passionate about solving problems and learning. Always open to new challenge
 
 ### 🌍 "Quanto mais eu sei, mais eu sou" 🧠
 
-- 📍 From SP living in São Paulo city.
+- 📍 From SP - living in São Paulo city.
 
 Reach me out 👇🏼
 
