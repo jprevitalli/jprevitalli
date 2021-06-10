@@ -1,6 +1,6 @@
 ## Hey there! Welcome to my profile! How is it going? 👋
 
-My name is Jonathan Nunciato Previtalli, i'm from Brazil! 👱🏼 🇧🇷
+My name is Jonathan Previtalli, i'm from Brazil! 👱🏼 🇧🇷
 
 I'm currently study! 💻
 
