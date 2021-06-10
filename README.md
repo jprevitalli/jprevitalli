@@ -1,4 +1,4 @@
-## Hey There! Welcome to my profile! How is it going? 👋
+## Hey there! Welcome to my profile! How is it going? 👋
 
 My name is Jonathan Nunciato Previtalli, i'm from Brazil! 👱🏼 🇧🇷
 
